@@ -1,4 +1,4 @@
-# 🍉 91吃瓜最新地址
+# 🍉 91吃瓜/51啪撸最新地址
 [点击导航页](https://pl.881.se/)
 ## 欢迎访问 **91吃瓜最新地址**，为您提供最新的访问地址。
 
@@ -10,12 +10,16 @@
 |------------|-----------------------|
 | 上海       | [shanghaiav.com](https://shanghaiav.com) |
 | 东北       | [dongbeiav.com](https://dongbeiav.com) |
+| 北京       | [beijingav.com](https://beijingav.com) |
 | 广东       | [guangdongav.com](https://guangdongav.com) |
-| 安徽       | [anhuiav.com](https://anhuiav.com) |
 | 广西       | [guangxiav.com](https://guangxiav.com) |
+| 广州       | [guangzhouav.com](https://guangzhouav.com) |
+| 安徽       | [anhuiav.com](https://anhuiav.com) |
+| 海南       | [hainanav.com](https://hainanav.com) |
+| 河南       | [henanav.com](https://henanav.com) |
 | 我要啪撸       | [51palu.cc](https://51palu.cc) |
 | 爸爸要点射       | [881.se](https://881.se) |
-
+| 岛国片       | [岛国片.com](https://岛国片.com) |
 ---
 
 ## 📢 注意事项
